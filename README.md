@@ -1,3 +1,3 @@
 ## Myprofile
   # Deborah Adebisi
-  #### The beauty Queen a.k.a[the preppy one]
+  #### The Preppy Queen a.k.a[the pretty one]
